@@ -1,2 +1,0 @@
-# practical-brands
-Practical brands
